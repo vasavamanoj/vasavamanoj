@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **manoj.vasava5@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/manoj-vasava-65a4452b/](https://www.linkedin.com/in/manoj-vasava-65a4452b/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/manoj-vasava-65a4452b/](https://www.linkedin.com/in/manojvasava/)
 
 
 <h3 align="left">Languages and Tools:</h3>
